@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @1919i am Ajoke Boluwatife IBRAHIM 
-- 👀 I’m interestei am interested in coding and Data Analysis 
+- 👋 Hi, I’m @191957 Ajoke Boluwatife IBRAHIM 
+- 👀 I’m intereste  in coding and Data Analysis 
 - 🌱 I’m currently learning Data Analysing 
 - 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me on Gmail: IBRAHIMAJOKEBOLU1@GMAIL.COM 
-- 😄 Pronouns: mypronounce are she and her
+- 😄 Pronouns: my pronouns are she and her
 - ⚡ Fun fact: i love learning new things,Dancing and Reading
 my profession is Public health expert
 <!---
